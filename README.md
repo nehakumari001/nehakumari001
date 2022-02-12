@@ -3,7 +3,8 @@
 - 🌱 I’m currently learning iot...
 - 💞️ I’m looking to collaborate on iot devices...
 - 📫 How to reach me - my gmail : neha27609@gmail.com
-instagram : neha_.100..
+instagram : neha_.100
+snapchat - neha20035
 
 <!---
 nehakumari001/nehakumari001 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
