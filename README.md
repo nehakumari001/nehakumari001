@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @nehakumari001
-- 👀 I’m interested in leaning new things...
-- 🌱 I’m currently learning iot...
-- 📫 How to reach me - my gmail : neha27609@gmail.com
+- 👀"Never set limitations"- this thought not only enhanced my learning attitude but also helped me realise my true potential.
+   Analysing your capabilities and working on your skills with interest and determination will definitely open doors to Success.
+- 📫 How to reach me - my gmail : nehakumari0709003@gmail.com
 
 
 <!---
